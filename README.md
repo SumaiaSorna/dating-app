@@ -222,4 +222,4 @@ please contact me through the links below:
 
 [GitHub](https://github.com/SumaiaSorna) Profile
 
-Email: @gmail.com
+Email: sorna.sumaia@gmail.com
